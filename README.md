@@ -1,1 +1,1 @@
-# VegHakkaNoodles
+Hakka noodles is a popular Indo-Chinese dish of stir fried noodles, veggies and sauces. It is hugely popular in Indian restaurants and street stalls. It is usually eaten on its own or with a side of Manchurian.
